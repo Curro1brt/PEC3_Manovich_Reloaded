@@ -56,7 +56,8 @@ La hibridación de medios en Reactable también se manifiesta en la naturaleza i
 
 La experiencia Reactable también destaca por su enfoque colaborativo y su capacidad para fomentar la participación colectiva. Varios usuarios pueden interactuar simultáneamente con la plataforma, creando composiciones musicales y visuales de forma colaborativa. Esta dimensión social y participativa es fundamental para comprender la verdadera esencia de la hibridación de medios en Reactable, ya que permite que los usuarios no experimenten solos individualmente, sino también co-crear y colaborar en la producción de contenido artístico.
 
-![Imagen extraída de la web de Reactable](https://github.com/Curro1brt/PEC3_Manovich_Reloaded/blob/main/final-IMG_8201.jpg)
+![Imagen extraída de la web de Reactable](https://github.com/Curro1brt/PEC3_Manovich_Reloaded/blob/main/reactable_live_mhd_sonard_2015.jpg)
+
 
 
 ## Conclusión.
